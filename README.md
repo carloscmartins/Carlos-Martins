@@ -17,10 +17,11 @@ Atualmente atuo como Especialista em Business Intelligence, onde construimos uma
 
 
 ## 📫 Contato
-- Email: carloscttba@hotmail.com  
+- Email: carloscmartinsdb@gmail.com 
 - LinkedIn: [linkedin.com/in/carlosmartins](https://www.linkedin.com/in/carlosmartins)  
 
 > Este portfólio está em constante evolução. Fique à vontade para explorar meus projetos e entrar em contato!
+
 
 
 
